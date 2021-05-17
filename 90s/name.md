@@ -1,15 +1,15 @@
-Start spreading the news
+I want to wake up in a city
 
-I'm leaving today
+That never sleeps
 
-I want to be a part of it
+And find I'm king of the hill
 
-New York, New York
+Top of the heap
 
-These vagabond shoes
+These small town blues
 
-They are longing to stray
+They are melting away
 
-Right through the very heart of it
+I'll make a brand new start of it
 
-New York, New York
+In old New York

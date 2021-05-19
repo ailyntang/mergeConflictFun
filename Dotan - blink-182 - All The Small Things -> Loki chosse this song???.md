@@ -1,12 +1,11 @@
-Commiserating
-Carry me home
-I'll take one lift
-Say it ain't so
-True care, truth brings
-Your ride, best trip
 All the small things
+True care, truth brings
+I'll take one lift
+Your ride, best trip
 Always I know
+You'll be at my show
 Watching, waiting
+Commiserating
+Say it ain't so
 I will not go
 Turn the lights off
-You'll be at my show

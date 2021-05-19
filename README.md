@@ -1,6 +1,10 @@
 ## Instructions
-1. Create a branch off `main`
-2. Rename the file to include the artist and the song name. No googling! Make it up if you don't know it.
-3. Rename the folder to properly describe the genre of the song
-4. Add one more song and / or folder of your choosing
-5. Create a PR and merge into main (no need to wait for approval)
+
+1. Clone the repo: `git clone git@github.com:ailyntang/mergeConflictFun.git`
+2. Create a branch
+2. Find the file with your name on it. Open it and unscramble the contents
+3. Rename the file with three things: your name, song name, who you think nominated this song as their favourite
+4. Create a PR and merge into main (no need for approval)
+5. Shout out on zoom!
+
+**No google! Making it up is encouraged :)**

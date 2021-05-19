@@ -1,13 +1,13 @@
-My belly stings
 Today is the greatest
-My angel wings
-That never forget
-Can't wait for tomorrow
-I'll tear my heart out
 Day I've ever known
-Pink ribbon scars
+Can't wait for tomorrow
+I might not have that long
+I'll tear my heart out
 Before I get out
+Pink ribbon scars
+That never forget
 I tried so hard
 To cleanse these regrets
+My angel wings
 Were bruised and restrained
-I might not have that long
+My belly stings
